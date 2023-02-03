@@ -1,5 +1,5 @@
 # sourov_old
-(This is a paid tool)
+(This is a paid tool) (contact to admin for free approval)
 
 
 
